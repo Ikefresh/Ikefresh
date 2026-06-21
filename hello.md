@@ -1,1 +1,1 @@
-hello world there as we navigate the incredible complexities of our modern existence it becomes increasily vital to cherish the small quiet moments of connection that ground us
+hello world there as we navigate the incredible complexities of our modern existence it becomes increasily vital to cherish the small quiet moments of connection that ground us whether
